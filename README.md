@@ -16,15 +16,15 @@ Daringly angular, yet smooth and organic. Strikingly thin, yet strong and light.
 
 ## Behind the Scenes
 
-![](ChairReimagined6.png)
+![](ChairReimagined6.jpg)
 *After assembling all the parts.*
 
-![](ChairReimagined7.png)
+![](ChairReimagined7.jpg)
 *A quick laser cut scale model.*
 
-![](ChairReimagined8.png)
+![](ChairReimagined8.jpg)
 
-![](ChairReimagined9.png)
+![](ChairReimagined9.jpg)
 *Early concept renders.*
 
 Dimensions: 40cm x 55cm x 80cm
