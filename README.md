@@ -1,8 +1,8 @@
 # Chair Reimagined
 
-![](ChairReimagined1.jpg)
-
 Daringly angular, yet smooth and organic. Strikingly thin, yet strong and light. With the form of a kneeling chair at a standing height, The Chair Reimagined harbors seemingly contradictory intersections.
+
+![](ChairReimagined1.jpg)
 
 ![](ChairReimagined2.jpg)
 
